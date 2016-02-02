@@ -1,0 +1,1 @@
+# https-github.com-biglobe-sales-lte-static-page
